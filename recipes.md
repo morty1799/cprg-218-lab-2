@@ -78,6 +78,7 @@ Ingredients:
 - 4 slices Swiss cheese
 - 4 hamburger buns
 - Lettuce
+- Onion
 - Tomato
 - Mayonnaise
 
