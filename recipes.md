@@ -113,3 +113,23 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Oreo Cheesecake Bites
+Ingredients:
+- 25 Oreo cookies
+- 8 oz (225g) cream cheese, softened
+- 1/4 cup (60g) powdered sugar
+- 1 tsp vanilla extract
+- 8 oz (225g) semi-sweet chocolate, melted
+
+Instructions:
+1. Place the Oreo cookies in a ziplock bag and crush them using a rolling pin or a food processor until you have fine crumbs.
+2. In a mixing bowl, combine the softened cream cheese, powdered sugar, and vanilla extract. Mix until smooth and well combined.
+3. Add the crushed Oreo cookies to the cream cheese mixture and mix until evenly incorporated.
+4. Take small portions of the mixture and roll them into bite-sized balls. Place the balls on a parchment-lined baking sheet.
+5. Place the baking sheet with the Oreo cheesecake bites in the refrigerator and chill for about 20-30 minutes to firm up.
+6. While the bites are chilling, melt the semi-sweet chocolate in a microwave-safe bowl in 30-second intervals, stirring in between until smooth and melted.
+7. Take each chilled Oreo cheesecake bite and dip it into the melted chocolate, ensuring it is fully coated. Place it back on the parchment-lined baking sheet.
+8. If desired, sprinkle crushed Oreo cookies, sprinkles, or chocolate shavings on top of each coated bite for decoration.
+9. Return the baking sheet to the refrigerator and let the chocolate set for about 15-20 minutes.
+10. Once the chocolate is set, your No-Bake Oreo Cheesecake Bites are ready to be enjoyed! Store them in an airtight container in the refrigerator until serving.
